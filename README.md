@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @hkumar369
+- 👋 Hi, I’m Hemanth Kumar
 - 👀 I’m interested in sports, food, travelling
 - 🌱 I’m currently learning new technologies which helps me further.
 - 📫 How to reach me ...you can reach me directly on 9948251445 or send me an email k.hemanthkumar369@gmail.com
